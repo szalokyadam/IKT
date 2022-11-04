@@ -1,0 +1,2 @@
+# IKT
+Ikt tanmenet cucc
